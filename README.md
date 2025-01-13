@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gabrielmchiapetti
+- 👀 I’m interested in Coding/Game development
+- 🌱 I’m currently learning Pygame/Lua
+- 💞️ I’m looking to collaborate on Simple FOSS projects
+- ⚡ Fun fact: I'm allergic to cats
