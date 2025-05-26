@@ -5,6 +5,6 @@ child. Anyways, feel free to navigate, fork and do other github stuff on my prof
 
 ## My Links:
 > **Youtube:** https://www.youtube.com/@gabrielmchiapetti/  
+> **Reddit:** https://www.reddit.com/user/chiapetti64/  
 > **Scratch:** https://scratch.mit.edu/users/GabrielMChiapetti/  
 > **Steam:** https://steamcommunity.com/id/gabrielmchiapetti/  
-> **Reddit:** https://www.reddit.com/user/chiapetti64/  
