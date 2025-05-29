@@ -7,4 +7,4 @@ child. Anyways, feel free to check out my projects!
 > **Youtube:** https://www.youtube.com/@gabrielmchiapetti/  
 > **Reddit:** https://www.reddit.com/user/chiapetti64/  
 > **Scratch:** https://scratch.mit.edu/users/GabrielMChiapetti/  
-> **Steam:** https://steamcommunity.com/id/gabrielmchiapetti/  
+> **Steam:** https://steamcommunity.com/id/gabrielmchiapetti/    
