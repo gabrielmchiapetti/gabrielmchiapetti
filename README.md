@@ -4,7 +4,6 @@ games, as you can see I love Linux and technology, I wanted to code games since 
 child. Anyways, feel free to check out my projects!
 
 ## My Links:
-> **Youtube:** https://www.youtube.com/@gabrielmchiapetti/  
 > **Reddit:** https://www.reddit.com/user/chiapetti64/  
 > **Scratch:** https://scratch.mit.edu/users/GabrielMChiapetti/  
 > **Steam:** https://steamcommunity.com/id/gabrielmchiapetti/    
